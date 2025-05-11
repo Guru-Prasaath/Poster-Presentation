@@ -1,2 +1,3 @@
 # Poster-Presentation
-![image](https://github.com/user-attachments/assets/b4647abd-c636-417e-ab85-097caf716b28)
+![AI Poster Final_page-0001](https://github.com/user-attachments/assets/12aa4332-4664-4482-ab83-c1206e679cac)
+
